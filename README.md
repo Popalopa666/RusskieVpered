@@ -1,2 +1,3 @@
 # RusskieVpered
 The highest nation
+#Я прикупил огромный байк....
